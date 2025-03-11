@@ -1,0 +1,1 @@
+# tez bylo prawie to samo
